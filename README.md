@@ -1,6 +1,6 @@
 ## Welcome to my page!
 
-Connect with me on [Linkedin](https://www.linkedin.com/in/regan-ryan/).
+Connect with me on [Linkedin](https://www.linkedin.com/in/regan-ryan/)!
 
 
 
