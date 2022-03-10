@@ -1,3 +1,5 @@
+![GitHub Dark](https://github.com/github-dark.png#gh-light-mode-only)
+
 ## Welcome to my page!
 
 ### Site currently under construction. 
